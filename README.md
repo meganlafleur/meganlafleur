@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Megan.
+- 📫 You can reach me at: meganlafleur.tx@gmail.com
