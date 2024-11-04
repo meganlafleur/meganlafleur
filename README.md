@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Megan.
-- 📫 You can reach me at: meganlafleur.tx@gmail.com
+- 📫 You can reach me at: lafleurmegan17@gmail.com
